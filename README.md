@@ -1,0 +1,1 @@
+# kinggotgamja.github.io
